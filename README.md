@@ -1,6 +1,6 @@
 [listography here](https://listography.com/melonoctoling) idkidk .. redoing stuff renaming things
 
-dropout & mentally ill . freely blocking horses since 2021
+dropout & mentally ill . freely blocking horses since 2021 .. if im covering like. someone by accident i prob hid them my bad
 
 genuinely fucking dni if ur gonna make fun of where im from ?!! hello common sense to not be xenophobic ?!! <br>
 i tolerate it when its, say, my gf and hes like "ewww french people" but like. rest of yall r strangers <br> 
@@ -10,3 +10,12 @@ its common sense i fear
 
 $\texttt{\color{orange}owaw???s}$
 $\textcolor{orange}{ uyo tesxt 1 }$ 
+
+<details>
+  
+<summary> ouuugh </summary>
+
+
+lalalalalalalalaalalalalalalaalala
+
+</details>
