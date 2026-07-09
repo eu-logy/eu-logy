@@ -1,6 +1,9 @@
-[listography here](https://listography.com/melonoctoling) idkidk .. redoing stuff renaming things
+[listography here](https://listography.com/melonoctoling) idkidk .. redoing stuff iguess
 
-dropout & mentally ill . freely blocking horses since 2021 .. if im covering like. someone by accident i prob hid them my bad
+dropout & mentally ill <br>
+happily taken dont be a weirdo
+
+freely blocking horses since 2021 .. if im covering like. someone by accident i prob hid them my bad
 
 genuinely fucking dni if ur gonna make fun of where im from ?!! hello common sense to not be xenophobic ?!! <br>
 i tolerate it when its, say, my gf and hes like "ewww french people" but like. rest of yall r strangers <br> 
