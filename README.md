@@ -28,6 +28,8 @@ please dont try to make me indulge in ships (canon or not) while in character it
 
 genuinely fucking dni if ur gonna make fun of where im from ?!! hello common sense to not be xenophobic <br>
 
+[important video you need to watch right now you need to watch it right now](https://www.youtube.com/watch?v=4MFr2BTneYU)
+
 <details>
   
 <summary> less important things </summary>
