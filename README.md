@@ -34,7 +34,7 @@ genuinely fucking dni if ur gonna make fun of where im from ?!! hello common sen
   
 <summary> less important things </summary>
 
-idk im kinda mean i guess umm im very nervous i guess im french i guess i like music a lot ask me about music i like 
+idk im kinda mean i guess umm im very nervous i guess im french i guess i like music a lot ask me about music i like .. i block unicode font users im not sorry your fonts suck and i hate how ugly they are 
 
 </details>
 
