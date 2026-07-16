@@ -21,6 +21,8 @@ ghiaccio
 dropout & mentally ill <br>
 happily taken dont be a weirdo
 
+uick warning i already say im kinda mean a lot but like im actually evil. sometimes. idk if it cuz of all the heatwaves or what but like im prob gonna be nasty sooner or later .. hatepilled since 2020
+
 freely blocking horses since 2021 .. if im covering like. someone by accident i prob hid them my bad
 
 i dont like shipping much .. most i pay attention to is anything me and my wife happen to like. match as <br>
