@@ -1,36 +1,14 @@
 [listography here](https://listography.com/melonoctoling) [ata here](https://melonoctoling.atabook.org) i dont feel like linking my stuff here other than this
 
-<details>
-  
-<summary> can call me: </summary>
-
-permian (obviously) <br>
-anasui <br>
-narancia <br>
-secco <br>
-mista <br>
-trish <br>
-diver <br>
-oasis <br>
-ghiaccio
-
-</details>
-
-***
-
 dropout & mentally ill <br>
 happily taken dont be a weirdo
 
-uick warning i already say im kinda mean a lot but like im actually evil. sometimes. idk if it cuz of all the heatwaves or what but like im prob gonna be nasty sooner or later .. hatepilled since 2020
+uick warning i already say im kinda mean a lot but like im actually evil. sometimes. idk if it cuz of all the heatwaves or what but like im prob gonna be nasty sooner or later .. hatepilled since 2020 .. freely blocking horses since 2021 .. if im covering like. someone by accident i prob hid them my bad
 
-freely blocking horses since 2021 .. if im covering like. someone by accident i prob hid them my bad
-
-i dont like shipping much .. most i pay attention to is anything me and my wife happen to like. match as <br>
-please dont try to make me indulge in ships (canon or not) while in character it feels icky
+i really dont like shipping esp not publicly im fine with it from my wife but i figuratively shoot myself like polpo when talked to abt ships by anyone else
 
 genuinely fucking dni if ur gonna make fun of where im from ?!! hello common sense to not be xenophobic <br>
-
-[important video you need to watch right now you need to watch it right now](https://www.youtube.com/watch?v=4MFr2BTneYU)
+also dni if you use "sch*zo" idgaf ur reasoning i will uppercut you
 
 <details>
   
