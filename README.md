@@ -8,7 +8,7 @@ uick warning i already say im kinda mean a lot but like im actually evil. someti
 i really dont like shipping esp not publicly im fine with it from my wife but i figuratively shoot myself like polpo when talked to abt ships by anyone else
 
 genuinely fucking dni if ur gonna make fun of where im from ?!! hello common sense to not be xenophobic <br>
-also dni if you use "sch*zo" idgaf ur reasoning i will uppercut you
+also dni if you use "sch*zo" idgaf ur reasoning i will uppercut you it cannot be that hard to not be ableist
 
 <details>
   
