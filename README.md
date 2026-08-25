@@ -29,6 +29,5 @@ $\textcolor{orange}{ uyo tesxt 1 }$
   
 <summary> ouuugh </summary>
 how it lowkey feels<br>
-https://github.com/user-attachments/assets/397d1a27-2bda-4103-a455-9ec6f35e51c2
-
+https://github.com/user-attachments/assets/e9faf720-a981-46f7-b2f1-fb24b31ba7c6
 </details>
