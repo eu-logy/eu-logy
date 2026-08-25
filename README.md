@@ -28,6 +28,8 @@ $\textcolor{orange}{ uyo tesxt 1 }$
 <details>
   
 <summary> ouuugh </summary>
-how it lowkey feels<br>
+how it lowkey feels
+
 https://github.com/user-attachments/assets/e9faf720-a981-46f7-b2f1-fb24b31ba7c6
+
 </details>
