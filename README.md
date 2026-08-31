@@ -1,6 +1,6 @@
 [rentry](https://rentry.co/in-house-pharmacy) <br>
 [listography](https://listography.com/melonoctoling) <br>
-SIGN MY [ATABOOK](https://melonoctoling.atabook.org)!!!! 
+SIGN MY [ATABOOK](https://melonoctoling.atabook.org) OR MY [STRAWPAGE](https://facethehurt.straw.page) 
 
 dropout & mentally ill <br>
 happily taken dont be a weirdo
