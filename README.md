@@ -7,7 +7,7 @@ happily taken dont be a weirdo
 
 hatepilled since 2020 .. freely blocking horses since 2021 .. if im covering like. someone by accident i prob hid them my bad
 
-i really dont like shipping esp not publicly im fine with it from my wife but i figuratively shoot myself like polpo when talked to abt ships by anyone else
+i really dont like shipping esp not publicly im fine with it from my wife but i figuratively pull a polpo when talked to abt ships by anyone else
 
 genuinely fucking dni if ur gonna make fun of where im from ?!! hello common sense to not be xenophobic <br>
 also dni if you use "sch*zo" idgaf ur reasoning i will uppercut you it cannot be that hard to not be ableist
