@@ -16,7 +16,8 @@ also dni if you use "sch*zo" idgaf ur reasoning i will uppercut you it cannot be
   
 <summary> (click) less important things </summary>
 
-idk im kinda mean i guess umm im very nervous i guess im french i guess i like music a lot ask me about music i like .. i block unicode font users im not sorry your fonts suck and i hate how ugly they are 
+idk im kinda mean i guess umm im very nervous i guess im french i guess i like music a lot ask me about music i like .. i block unicode font users im not sorry your fonts suck and i hate how ugly they are oh and also
+![car nay drool emoji](https://i.postimg.cc/qBwD6Fnw/Untitled1438-20260913184312.png)
 
 </details>
 
@@ -33,3 +34,4 @@ how it lowkey feels
 https://github.com/user-attachments/assets/e9faf720-a981-46f7-b2f1-fb24b31ba7c6
 
 </details>
+
