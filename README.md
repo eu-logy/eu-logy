@@ -4,6 +4,7 @@ SIGN MY [ATABOOK](https://melonoctoling.atabook.org) OR MY [STRAWPAGE](https://f
 
 dropout & mentally ill <br>
 happily taken dont be a weirdo
+2nd name is only because Bruno would be such a kickass name for a girl and is unrelated to Bruno from part 5
 
 rewriting currently just go read rentry
 
