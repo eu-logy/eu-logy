@@ -1,5 +1,17 @@
 <details>
   
+<summary> wip </summary>
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com/?font=Geo&size=18&duration=2000&pause=1000&color=FFFFFF&center=true&vCenter=true&width=800&lines=we're+falling+deeply;for+fiction;and+its+depiction;of+the+expressive;creation;...;gratification)](https://git.io/typing-svg)
+
+stuff tba
+
+[![Typing SVG](https://readme-typing-svg.demolab.com/?font=Geo&size=18&duration=2000&pause=1000&color=FFFFFF&center=true&vCenter=true&width=800&lines=sweet+graphology,;will+you+work+for+me?;glossolalia+and+i...)](https://git.io/typing-svg)
+
+</details>
+
+<details>
+  
 <summary> (click) readme (im making a new one </summary>
 
 [rentry](https://rentry.co/in-house-pharmacy) <br>
