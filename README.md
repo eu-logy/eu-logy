@@ -1,3 +1,7 @@
+<details>
+  
+<summary> (click) readme (im making a new one </summary>
+
 [rentry](https://rentry.co/in-house-pharmacy) <br>
 [listography](https://listography.com/melonoctoling) <br>
 SIGN MY [ATABOOK](https://melonoctoling.atabook.org) OR MY [STRAWPAGE](https://facethehurt.straw.page) 
@@ -30,6 +34,9 @@ $\textcolor{orange}{ uyo tesxt 1 }$
 how it lowkey feels
 
 https://github.com/user-attachments/assets/e9faf720-a981-46f7-b2f1-fb24b31ba7c6
+
+</details>
+
 
 </details>
 
