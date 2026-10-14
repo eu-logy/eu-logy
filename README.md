@@ -1,35 +1,6 @@
 <details>
   
 <summary> wip </summary>
-  
-[![Typing SVG](https://readme-typing-svg.demolab.com/?font=Geo&size=18&duration=2000&pause=1000&color=FFFFFF&center=true&vCenter=true&width=800&lines=we're+falling+deeply;for+fiction;and+its+depiction;of+the+expressive;creation;...;gratification)](https://git.io/typing-svg)
-
-stuff tba
-
-
-<p align="left">
- <table align="left" cellspacing="0" cellpadding="0" style="border:none; border-collapse:collapse;">
-  <tr>
-    <td style="border:none; padding-left:10px;">
-     <p align="center">
-<p align="center">
-
-tba
-
-</br>
-</table>
-  
-</br>
-
-  </tr>
-</table>
-
-</p>
- </p>
-
-<p align="center">
- 
- [![Typing SVG](https://readme-typing-svg.demolab.com/?font=Geo&size=18&duration=2000&pause=1000&color=FFFFFF&center=true&vCenter=true&width=800&lines=sweet+graphology,;will+you+work+for+me?;glossolalia+and+i...)](https://git.io/typing-svg)
 
 </details>
 
