@@ -2,6 +2,10 @@
   
 <summary> wip </summary>
 
+ <p align=right>
+
+ ![](https://komarev.com/ghpvc/?eu-logy&color=ffffff&style=plastic&label=sequenced+dna)
+
 </details>
 
 <details>
