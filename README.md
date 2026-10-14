@@ -2,9 +2,8 @@
   
 <summary> wip </summary>
 
- <p align=right>
-
- ![](https://komarev.com/ghpvc/?username=eu-logy&color=ffffff&style=plastic&label=sequenced+dna)
+ <p align=center>
+ $\texttt{\color{orange}I'll drop you when you're ready to soar}$
 
 </details>
 
