@@ -4,7 +4,7 @@
 
  <p align=right>
 
- ![](https://komarev.com/ghpvc/?eu-logy&color=ffffff&style=plastic&label=sequenced+dna)
+ ![](https://komarev.com/ghpvc/?username=eu-logy&color=ffffff&style=plastic&label=sequenced+dna)
 
 </details>
 
