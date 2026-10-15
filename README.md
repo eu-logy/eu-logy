@@ -3,7 +3,7 @@
 <summary> wip </summary>
 
  <p align=center>
- ou
+ hi im bruno or permian these are my buttons and my shiny buttons. my name is unrelated to bucciarati ok
 
 <p align=center> <a href="https://rentry.co/in-house-pharmacy"><img src="https://i.postimg.cc/yYfLR1ZJ/Untitled45-20261015064902.png" width="150"></a> ◦ <a href="https://facethehurt.straw.page"><img src="https://i.postimg.cc/Qx6f78TW/Untitled45-20261015064916.png" width="150"></a> ◦ <a href="https://pronouns.cc/@MelonOctoling"><img src="https://i.postimg.cc/dtW5CsyZ/Untitled45-20261015064850.png" width="150"></a> ◦ <a href="https://listography.com/melonoctoling"><img src="https://i.postimg.cc/4N8Wcf97/Untitled45-20261015064936.png" width="150"></a>
 
