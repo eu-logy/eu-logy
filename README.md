@@ -5,6 +5,13 @@
  <p align=center>
  $\texttt{\color{orange}I'll drop you when you're ready to soar}$
 
+
+ 
+
+<p align=center> <img href="https://rentry.co/in-house-pharmacy" src="https://i.postimg.cc/yYfLR1ZJ/Untitled45-20261015064902.png" width="150"> ◦ <img href="https://facethehurt.straw.page" src="https://i.postimg.cc/Qx6f78TW/Untitled45-20261015064916.png" width="150"> ◦ <img href="https://pronouns.cc/@MelonOctoling" src="https://i.postimg.cc/dtW5CsyZ/Untitled45-20261015064850.png" width="150"> ◦ <img href="https://listography.com/melonoctoling" src="https://i.postimg.cc/4N8Wcf97/Untitled45-20261015064936.png" width="150"> 
+
+</p>
+
 </details>
 
 <details>
