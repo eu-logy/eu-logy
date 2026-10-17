@@ -12,6 +12,10 @@ im sometimes mean .. we try not 2 be but im super evil asf as hell . <br>
 if you like our interests and catch me at a gtc or a hangout we might be able to talk but im guacward .. <br>
 if u sign our ata or send a gimmick on straw im more likely to be friendly if we recognize u !! direct interaction is scary so things like atabook n strawpage are my best friends
 
+hidden? sorry not sorry. i block freely and use request blocking the most <br>
+i like to check peoples strawpages and rentries and stuff and if im in your dni criteria or you make me uncomfortable you will get blocked in one way or another<br>
+i also chat block font users and spammers
+
 <details>
   
 <summary> uugh </summary>
