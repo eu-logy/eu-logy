@@ -1,6 +1,7 @@
-
  <p align=center>
  hi im bruno or permian these are my buttons and my shiny buttons. my name is unrelated to bucciarati ok
+
+ ponytown's narancia ghirga according to [THE-TEMPIST](https://github.com/THE-TEMPIST)
 
 <p align=center> <a href="https://rentry.co/in-house-pharmacy"><img src="https://i.postimg.cc/yYfLR1ZJ/Untitled45-20261015064902.png" width="150"></a> ◦ <a href="https://facethehurt.straw.page"><img src="https://i.postimg.cc/Qx6f78TW/Untitled45-20261015064916.png" width="150"></a> ◦ <a href="https://pronouns.cc/@MelonOctoling"><img src="https://i.postimg.cc/dtW5CsyZ/Untitled45-20261015064850.png" width="150"></a> ◦ <a href="https://melonoctoling.atabook.org"><img src="https://i.postimg.cc/rp5FYVW5/Untitled45-20261017084523.png" width="150"></a>
 
