@@ -1,5 +1,7 @@
+<p align=center> <img src="https://github.com/user-attachments/assets/e2dcb29a-8ab2-4b65-a0dd-588328f10e0b" />
+
  <p align=center>
- hi im bruno or permian these are my buttons and my shiny buttons. my name is unrelated to bucciarati ok
+ hi im bruno or permian these are my buttons and my shiny buttons. my name is unrelated to buccellati ok
 
  <p align=center>
   ponytown's narancia ghirga according to <a href="https://github.com/THE-TEMPIST">THE-TEMPIST</a>
